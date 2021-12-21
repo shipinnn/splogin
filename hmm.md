@@ -1,2 +1,2 @@
 
-cok bakma kafa yapar :d
+cok bakma reis bence :xd
